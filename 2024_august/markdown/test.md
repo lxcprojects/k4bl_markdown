@@ -74,6 +74,139 @@ dia nombre otro Perito de su satis-
 faccion con apercebimiento que des
 no verificando, sehara de oficio. ___
 [Rubrica, Carondelet]    [Rubrica, Vidal]
+\
+Proveyolo el S.<sup>^</sup>r Baron de Carondelet
+Caballero Dela religion de S.<sup>^</sup>n Juan
+Coronel Delos E.<sup>^</sup>s extos, Governador
+eYntendente Grãl vice Patrono Real
+                     ~  
+\
+\
+\
+[f.2 r] [dig. #6]
+\
+ellas Prov.<sup>^</sup>~ dela Luisiana, y Florida
+Occidental eYnspector delas tropas
+veteranas, y milicias De estas por
+S.M. Con dictamen del S.<sup>^</sup>r D. D. Nicolas
+Maria Vidal teniente Governador
+yAuditor de Grrã De esta dha Prov.^a
+yAsesor gràl del Governo De esta por
+S.M. y lo rubricanas enla cuidad dela
+Nueba Orleans a onze de Marso
+De mil setecientos, noventa, y tres años=
+[Firmado:] Pedro Pedesclaux  
+                            [Rubrica, Pedesclaux]
+                E^snoPub.^co  
+\
+\
+ Nf   En dho dia lo hace saber a Julia Fortier
+       Negra libre doy fee___________
+[Firmado:] Pedesclaux
+                            [Rubrica, Pedesclaux]
+                E<sup>^</sup>sno
+\
+Diligencia } Enelmismodia yoel S.^no lo hace por
+             D.<sup>^</sup>n Josef Coupery, y seme informo hacia
+             su rendencia enel cargo, para que
+             conne lo porpo por diligencia, doy feé==
+    [Firmado:] Pedesclaux   [Rubrica, Pedesclaux]
+                        E<sup>^</sup>sno
+\
+N.Acep.^n } Enelmismodia mes,y año yoel S.^no
+y Juram^to }                         ~                 
+\
+\
+\
+\
+[f.2 v] [dig. #7]
+\
+\
+hice saber a D.<sup>^</sup>n Vincente Fanguy el
+nombramiento de estimador que
+por el decreto que antecedo sele hase,
+quien acepto, y Juro por Dios y un a
+cruz segun drõ Deproceder bien
+y fielmente en el encargo que sele
+hase, y lo firmo, doy fee________
+[Firmado:] V=<sup>^</sup>te Fangui
+                            Antemi
+
+         [Firmado:] Pedro Pedesclaux  
+                E^nopub.^co     [Rubrica, Pedesclaux]  
+\
+\
+\
+[f.3 r] [dig. #8]
+\
+\
+Julia Fortier negra libre vecina de esta 
+Ciudad en los autos q<sup>^</sup>e sigo contra Don Jph
+Piquery sobre conseguir la libertad del negro__
+Mederie su esclavo por el precio de su justa ta-
+sacion ante VS digo q<sup>^</sup>e sele ha mandado al antedho 
+nombrase tasador de su parte y en atencion a__
+venidir al campo a una legua de esta Ciudad del 
+otro lado del rio, VS se ha de servir mandar dela
+libre boleta De comparendo cometida su intimacion 
+a qualquier persona habil por tanto
+AVS Suplico se sirva proveer y mandar
+como pido con Justicia costas juro y para 
+ello &
+                 Por Julia Fortier 
+[Firmado:] Felipe Guinault    
+\
+\
+\
+Como lo pide
+[Rubrica, Carondelet]    [Rubrica, Vidal]  
+\
+Proveida elefor Baron de Carondelet
+Cav.<sup>^</sup>ro de San Juan Coronel de
+los reales Extos_____  
+\
+\
+[f.3 v] [dig. #9]                                   
+\
+Gov.^ Int.<sup>^</sup>e grãl, y Vice Patrono
+Y<sup>^e~al en las Pro.<sup>^</sup> dela Luisiana
+Con dictamen del S<sup>^</sup>or d.d, Nicolas
+M^a VidalTh.<sup>^</sup>e Gov.<sup>^</sup>or Auditor de grra
+y Asesor grãl del Gov.<sup>^</sup>o ylo ru-
+bricasonenlaN<sup>^</sup>a Orleans
+à TreZe de MarZodemil
+Set.<sup>^</sup>s nuvento ytres
+[Firmado:] Pedro Pedesclaux
+               E<sup>^</sup>snopub.<sup>^</sup>co   [Rubrica, Pedesclaux]
+\
+\
+N.<sup>^</sup>n En dho dia lohis Saver àJulia
+Fortier doy fe_____
+[Firmado:] Pedesclaux  [Rubrica, Pedesclaux]
+                  E<sup>^</sup>nopub.<sup>^</sup>co
+\
+Nota,, Fue en el mismo dia se libro 
+la boleta q<sup>^</sup>e se mando ylo
+entreguè ala parte doy
+Fe__________________-
+[Firmado:] Pedesclaux [Rubrica, Pedesclaux]
+                  E.<sup>^</sup>sno                                       
+\
+\
+\
+[f.3 r] [dig. #10]                                                         
+\
+[EN BLANCO]                                                               
+\
+
+
+
+
+
+
+
+
+
 
 
 
