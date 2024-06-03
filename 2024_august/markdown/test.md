@@ -198,24 +198,202 @@ Fe__________________-
 \
 [EN BLANCO]                                                               
 \
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
 ## Translation (English, modern)
+\
+[page #1] [digital #]
+\
+[In the] Year of 1793H
+\
+Julia Fortier requesting the
+freedom of the negro named Mendery,
+slave of Don Juan Piquery, for the
+price of his estimation. 
+\
+N.<sup>^</sup>o 18
+\
+[modern, in pencil] March 11, 1793 
+[in archival red pencil] 2999
+\
+Judge
+______________
+Your Lord Governor}   Notary
+                                        __________
+                                         Pedesclaux
+\
+\
+[f.0 verse] [dig. #3]
+\
+[BLANK]
+\
+\
+[p. #2] [dig. #4]
+Julia Fortier, free *negra*, resident of this
+city, in the way which is necessary
+by law before Your Lordship I appear and say; that wishing 
+to rescue from the slavery in which 
+the *negro* Medery, slave of Mr. Piquery, is kept, 
+I beg Your Lordship to order that of his said
+master, to appoint an estimator on his behalf, so
+that, with which the named, *Don* Vicente
+Fanguy, they may proceed to the estimation of
+the said *negro* Medery. Thusly_____ 
+I beg Your Lordship to appoint, provide and
+order as I ask, with due justice
+I swear [that I have] no malice, etc.___                  
+\
+               For Julia Fortier
+[Signed:] Felipe Guinault                                 
+\
+Motion filed: and support given
+for the purpose proposed of the
+  ~                                                        
+\
+\
+[p. #3] [dig. #5]  
+\
+liberty of the *negro* Medery, slave
+of Mr. Piquery, the estima-
+tion requested from the person
+of that which to proceed immediately 
+to it; for which has been appointed 
+by this party for appraiser 
+*Don* Vicente Fanguy who will
+be notified for his acceptance, 
+and oath [to which] he submits, giving 
+notice of this providence to the master 
+of the slave, so that within the second
+day he may appoint another expert to his satisfaction, with the warning that if this
+is not done, it will be executed *ex officio.*___
+[Rubric, Carondelet]    [Rubric, Vidal]
+\
+Thus ordered by the Lord Baron de Carondelet,
+Knight of the Holy Order of St. John, 
+Colonel of these Realms, Governor and Intendant-General, Vice Royal Patron
+                     ~                                          
+\
+\
+[p. #4] [dig. #6]  
+\
+of this Province of Louisiana and West
+Florida and superintendent of veteran
+troops and our militias for 
+His Majesty, with assent of of Lord Director
+*Don* Nicolas 
+Maria Vidal, Lieutenant Governor
+and Auditor of War of this said Province,
+and Assessor-General of our Government for
+His Majesty. And they signed in the City of 
+New Orleans on [the] 11th of March
+of the year seventeen hundred ninety three.
+[Signed:] Pedro Pedesclaux
+                            [Rubric, Pedesclaux]
+                Notary Public                                
+\
+\
+On the said day I made known to Julia Fortier,
+*negra libre*,  I attest ___________
+[Signed:] Pedro Pedesclaux
+                            [Rubric, Pedesclaux]
+             Notary                                          
+\
+Proceedings } On the same day, month, and year I,    
+           the notary, have made [it known] to
+          *Don* Joseph Coupery, and have been
+          informed he has dispensed of his charge, so 
+          with that it is done by due process. I attest,                  
+        [Signed:] Pedesclaux     [Rubric, Pedesclaux]
+                       Notary
+\
+Notarized, accepted} on the same day, month 
+and ordered             } and year, I, the notary 
+                                    ~  
+\
+[p. #5] [dig. #7]
+\
+made known to *Don* Vicente Fanguy the
+appointment as estimator that
+is made to him by the above decree, 
+who accepted and swore by God and the 
+Cross, according to the law to proceed well and faithfully in the task that is made 
+to him. I sign as such, I attest________
+[Signed:] Vicente Fanguy
+  Before me
+            [Signed:] Pedro Pedesclaux                       
+                    Notary Public    [Rubric, Pedesclaux]    
+\
+\
+[p. #6] [dig. #8]  
+\
+Julia Fortier, *negra libre*, resident of this
+city, in the proceedings that I began against *Don* Joseph  
+Piquery about achieving the freedom of the *negro*
+Medery, his slave, for the price of his fair valuation, before Your Lordship, has sent the aforementioned
+named evaluator on his behalf and in consideration of coming from the countryside one league from this city on the  
+other side of the river, Your Lordship order served 
+freedom papers with subpoena, given charge
+to any able person. Thusly.
+To Your Lordship, I beg you to provide and order
+as I request, with due justice, costs, and by which I swear it, etc.
+                     For Julia Fortier 
+       [Signed:] Felipe Guinault  
+\
+\
+As requested.
+[Rubric, Carondelet]    [Rubric, Vidal]  
+\
+Thus ordered by the Lord Baron de Carondelet 
+Knight of the Holy Order of St. John, Colonel of these Realms, 
+\
+\
+[p. #6] [dig. #9]  
+\
+Governor Vice-Patron and Intendant-General of this Province of Louisiana
+with assent of Lord Director *Don* Nicolas 
+Maria Vidal, Lieutenant Governor, Auditor
+of War, and Assessor-General of the Government,
+which they sign inNew Orleans 
+on the thirteenth of March of seventeen
+hundred and ninety three
+ [Signed] Pedro Pedesclaux
+               Notary Public     [Rubric, Pedesclaux]  
+\
+\
+Notarized. On the said day I made known to Julia
+Fortier. I attest, 
+[Signed:] Pedesclaux      [Rubric, Pedesclaux]
+               Notary Public    
+\
+Note: It was on the same day that the papers were issued and sent, and I 
+delivered them to the party. I 
+attest, 
+[Signed:] Pedesclaux [Rubric, Pedesclaux]
+                 Notary  
+\
+\
+[p. #7] [dig. #10]
+\
+[BLANK]
+\
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
