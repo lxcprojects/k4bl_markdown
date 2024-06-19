@@ -173,7 +173,7 @@ los reales Extos_____
 \
 [f.3 v] [dig. #9]                                   
 \
-Gov.^ Int.<sup>e</sup> grãl, y Vice Patrono
+Gov.<sup>Int.</sup><sup>e</sup> grãl, y Vice Patrono
 Y<sup>e~al</sup> en las Pro.<sup>dela</sup> Luisiana
 Con dictamen del S<sup>or</sup> d.d, Nicolas
 M<sup>a</sup> VidalTh.<sup>e</sup> Gov.<sup>or</sup> Auditor de grra
