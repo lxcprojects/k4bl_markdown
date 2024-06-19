@@ -1,5 +1,5 @@
 # Summary  
-[Julia Fortier, a free Black woman, files a freedom suit to compel the fair valuation of Medery, who is enslaved by Antoine Joseph Picquery, and successfully purchases his liberty. This case is an example of *coartación*, a process enslaved people and their kinfolk used to force their owners to provide them with an estimate of their value so they could fund their own self-purchase]  
+[Julia Fortier, a free Black woman, files a freedom suit to compel the fair valuation of Medery, who is enslaved by Antoine Joseph Picquery, and successfully purchases his liberty. This case is an example of *coartación*, a process enslaved people and their kinfolk used to force their owners to provide them with an estimate of their value so they could fund their own self-purchase.]  
 \
 [Transcription](#transcription-(Spanish,-diplomatic))  
 [Translation](#translation-(English,-modern))  
@@ -15,8 +15,10 @@ libertad a el Negro nombrado Mendery
 esclabo de D<sup>n</sup> Juan Piquery por el
 Precio De su estimación______   
 \
- N.<sup>o</sup>18  
+ ~~N.<sup>o</sup>18~~ 
 \
+ N.vv58
+ \
 [moderno, a lápiz] March 11, 1793 
 [en lápiz de archivo rojo] 2999
 \
@@ -40,10 +42,11 @@ rescatar dela Esclavitud en quese halla
 el Negro Medery Esclavo de M.<sup>r</sup> Piquery
 sup.<sup>co</sup> aV.S. sesirva mandar que el dhe su
 Amo, nombre un Estimador de su parte, pa=
-ra que con el que nombre que los es D.^n Vicen 
+ra que con el que nombre que los es D.<sup>n</sup> Vicen 
 te Fanguy, procedan a la Estimacion de 
 dho Negro Medery Portanto_____ 
-A V.S. Sup.<sup>co</sup> haverlo por nombrado proveer y mandar como pido ConJusticia costas
+A V.S. Sup.<sup>co</sup> haverlo por nombrado proveer y 
+mandar como pido ConJusticia costas
 Juro noes de malicia &a___  
 \
 \
