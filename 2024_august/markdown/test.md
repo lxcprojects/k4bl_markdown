@@ -93,7 +93,7 @@ Occidental eYnspector delas tropas
 veteranas, y milicias De estas por
 S.M. Con dictamen del S.<sup>r</sup> D. D. Nicolas
 Maria Vidal teniente Governador
-yAuditor de Grrã De esta dha Prov.^a
+yAuditor de Grrã De esta dha Prov.<sup>a</sup>
 yAsesor gràl del Governo De esta por
 S.M. y lo rubricanas enla cuidad dela
 Nueba Orleans a onze de Marso
