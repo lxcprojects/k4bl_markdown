@@ -214,7 +214,9 @@ freedom of the _negro_ named Mendery,
 slave of _Don_ Juan Piquery, for the
 price of his estimation. 
 \
-N.<sup>o 18</sup>
+ ~~N.<sup>o</sup>18~~ 
+\
+ N.vv58
 \
 [modern, in pencil] March 11, 1793 
 [in archival red pencil] 2999
@@ -234,8 +236,8 @@ Your Lord Governor}   Notary
 [p. #2] [dig. #4]
 Julia Fortier, free *negra*, resident of this
 city, in the way which is necessary
-by law before Your Lordship I appear and say; that wishing 
-to rescue from the slavery in which 
+by law before Your Lordship I appear and say; that 
+wishing to rescue from the slavery in which 
 the *negro* Medery, slave of Mr. Piquery, is kept, 
 I beg Your Lordship to order that of his said
 master, to appoint an estimator on his behalf, so
@@ -267,13 +269,15 @@ be notified for his acceptance,
 and oath [to which] he submits, giving 
 notice of this providence to the master 
 of the slave, so that within the second
-day he may appoint another expert to his satisfaction, with the warning that if this
+day he may appoint another expert to his
+satisfaction, with the warning that if this
 is not done, it will be executed *ex officio.*___
 [Rubric, Carondelet]    [Rubric, Vidal]
 \
 Thus ordered by the Lord Baron de Carondelet,
 Knight of the Holy Order of St. John, 
-Colonel of these Realms, Governor and Intendant-General, Vice Royal Patron
+Colonel of these Realms, Governor and
+Intendant-General, Vice Royal Patron
                      ~                                          
 \
 \
@@ -305,7 +309,7 @@ Proceedings } On the same day, month, and year I,
            the notary, have made [it known] to
           *Don* Joseph Coupery, and have been
           informed he has dispensed of his charge, so 
-          with that it is done by due process. I attest,                  
+          with that it is done by due process. I  attest,                  
         [Signed:] Pedesclaux     [Rubric, Pedesclaux]
                        Notary
 \
@@ -322,7 +326,7 @@ who accepted and swore by God and the
 Cross, according to the law to proceed well and faithfully in the task that is made 
 to him. I sign as such, I attest________
 [Signed:] Vicente Fanguy
-  Before me
+                      Before me
             [Signed:] Pedro Pedesclaux                       
                     Notary Public    [Rubric, Pedesclaux]    
 \
