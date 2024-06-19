@@ -114,7 +114,7 @@ Diligencia } Enelmismodia yoel S.<sup>no</sup> lo hace por
              su rendencia enel cargo, para que
              conne lo porpo por diligencia, doy feé==
     [Firmado:] Pedesclaux   [Rubrica, Pedesclaux]
-                        E<sup>sno</sup>
+                        E<sup>sno</sup> 
 \
 N.Acep.<sup>n</sup> } Enelmismodia mes,y año yoel S.<sup>no</sup>
 y Juram<sup>to</sup> }                         ~                 
