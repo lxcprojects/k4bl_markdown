@@ -134,7 +134,7 @@ y fielmente en el encargo que sele
 hase, y lo firmo, doy fee________
 [Firmado:] V=<sup>te</sup> Fangui
                             Antemi
-
+\
          [Firmado:] Pedro Pedesclaux  
               E<sup>nopub.</sup><sup>co</sup> [Rubrica, Pedesclaux]  
 \
