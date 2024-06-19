@@ -118,7 +118,7 @@ Diligencia } Enelmismodia yoel S.<sup>no</sup> lo hace por
 \
 N.Acep.<sup>n</sup> } Enelmismodia mes,y año yoel S.<sup>no</sup>
 y Juram<sup>to</sup> }                         ~                 
-\
+\ 
 \
 \
 \
