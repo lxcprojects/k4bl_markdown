@@ -323,7 +323,8 @@ made known to *Don* Vicente Fanguy the
 appointment as estimator that
 is made to him by the above decree, 
 who accepted and swore by God and the 
-Cross, according to the law to proceed well and faithfully in the task that is made 
+Cross, according to the law to proceed well and 
+faithfully in the task that is made 
 to him. I sign as such, I attest________
 [Signed:] Vicente Fanguy
                       Before me
@@ -334,15 +335,21 @@ to him. I sign as such, I attest________
 [p. #6] [dig. #8]  
 \
 Julia Fortier, *negra libre*, resident of this
-city, in the proceedings that I began against *Don* Joseph  
+city, in the proceedings that I began against *Don* 
+Joseph  
 Piquery about achieving the freedom of the *negro*
-Medery, his slave, for the price of his fair valuation, before Your Lordship, has sent the aforementioned
-named evaluator on his behalf and in consideration of coming from the countryside one league from this city on the  
+Medery, his slave, for the price of his fair 
+valuation, before Your Lordship, has sent the 
+aforementioned
+named evaluator on his behalf and in consideration
+of coming from the countryside one league from 
+this city on the  
 other side of the river, Your Lordship order served 
 freedom papers with subpoena, given charge
 to any able person. Thusly.
 To Your Lordship, I beg you to provide and order
-as I request, with due justice, costs, and by which I swear it, etc.
+as I request, with due justice, costs, and by which I
+ swear it, etc.
                      For Julia Fortier 
        [Signed:] Felipe Guinault  
 \
@@ -351,12 +358,14 @@ As requested.
 [Rubric, Carondelet]    [Rubric, Vidal]  
 \
 Thus ordered by the Lord Baron de Carondelet 
-Knight of the Holy Order of St. John, Colonel of these Realms, 
+Knight of the Holy Order of St. John, Colonel of
+these Realms, 
 \
 \
 [p. #6] [dig. #9]  
 \
-Governor Vice-Patron and Intendant-General of this Province of Louisiana
+Governor Vice-Patron and Intendant-General of
+this Province of Louisiana
 with assent of Lord Director *Don* Nicolas 
 Maria Vidal, Lieutenant Governor, Auditor
 of War, and Assessor-General of the Government,
@@ -372,7 +381,8 @@ Fortier. I attest,
 [Signed:] Pedesclaux      [Rubric, Pedesclaux]
                Notary Public    
 \
-Note: It was on the same day that the papers were issued and sent, and I 
+Note: It was on the same day that the papers were 
+issued and sent, and I 
 delivered them to the party. I 
 attest, 
 [Signed:] Pedesclaux [Rubric, Pedesclaux]
