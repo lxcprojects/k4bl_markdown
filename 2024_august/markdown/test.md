@@ -136,7 +136,7 @@ hase, y lo firmo, doy fee________
                             Antemi
 
          [Firmado:] Pedro Pedesclaux  
-                E<sup>nopub.</sup>^co     [Rubrica, Pedesclaux]  
+              E<sup>nopub.</sup><sup>co</sup> [Rubrica, Pedesclaux]  
 \
 \
 \
