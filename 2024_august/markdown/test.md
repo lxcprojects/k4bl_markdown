@@ -147,11 +147,13 @@ Julia Fortier negra libre vecina de esta
 Ciudad en los autos q<sup>e</sup> sigo contra Don Jph
 Piquery sobre conseguir la libertad del negro__
 Mederie su esclavo por el precio de su justa ta-
-sacion ante VS digo q<sup>e</sup> sele ha mandado al antedho 
+sacion ante VS digo q<sup>e</sup> sele ha mandado al 
+antedho 
 nombrase tasador de su parte y en atencion a__
 venidir al campo a una legua de esta Ciudad del 
 otro lado del rio, VS se ha de servir mandar dela
-libre boleta De comparendo cometida su intimacion 
+libre boleta De comparendo cometida su 
+intimacion 
 a qualquier persona habil por tanto
 AVS Suplico se sirva proveer y mandar
 como pido con Justicia costas juro y para 
