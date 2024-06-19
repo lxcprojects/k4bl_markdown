@@ -100,7 +100,7 @@ Nueba Orleans a onze de Marso
 De mil setecientos, noventa, y tres años=
 [Firmado:] Pedro Pedesclaux  
                             [Rubrica, Pedesclaux]
-                E<sup>sno</sup>Pub.<sup>co</sup>  
+                E<sup>snoPub.</sup><sup>co</sup>  
 \
 \
  Nf   En dho dia lo hace saber a Julia Fortier
