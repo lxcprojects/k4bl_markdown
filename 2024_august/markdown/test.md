@@ -210,8 +210,8 @@ Fe__________________-
 [In the] Year of 1793H
 \
 Julia Fortier requesting the
-freedom of the negro named Mendery,
-slave of Don Juan Piquery, for the
+freedom of the _negro_ named Mendery,
+slave of _Don_ Juan Piquery, for the
 price of his estimation. 
 \
 N.<sup>o 18</sup>
