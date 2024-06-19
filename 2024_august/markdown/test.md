@@ -182,7 +182,7 @@ bricasonenlaN<sup>a</sup> Orleans
 à TreZe de MarZodemil
 Set.<sup>s</sup> nuvento ytres
 [Firmado:] Pedro Pedesclaux
-               E<sup>snopub.</sup><sup>co</sup>   [Rubrica, Pedesclaux]
+               E<sup>snopub.</sup><sup>co</sup> [Rubrica, Pedesclaux]
 \
 \
 N.<sup>n</sup> En dho dia lohis Saver àJulia
