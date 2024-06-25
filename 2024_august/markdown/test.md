@@ -28,7 +28,7 @@ VS<sup>or</sup> Gov.<sup>or</sup> }           S<sup>no</sup>
                                          Pedesclaux
 \
 \
-<ins>[f.0 verso] [dig. #3]</ins>
+[f.0 verso] [dig. #3]
 \
 [EN BLANCO]
 \
