@@ -17,7 +17,7 @@ Precio De su estimación______
 \
  ~~N.<sup>o</sup>18~~ 
 \
-&emsp;  &emsp; N.vv58
+&emsp;&emsp;&emsp;&emsp; N.vv58
  \
 [moderno, a lápiz] March 11, 1793 
 [en lápiz de archivo rojo] 2999
