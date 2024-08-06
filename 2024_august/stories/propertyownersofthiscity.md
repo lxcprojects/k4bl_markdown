@@ -7,4 +7,6 @@ The sale addressed in this document begs several generative questions: What were
 ### ENDNOTES  
   
 [^i]: Under the French colonial system of property law, a hypothèque was a debt instrument which allowed the owner of a property to collateralize their assets in order to secure a loan." 
-For more on this system, see Gregory Smaldone, "Don't Call it a Mortgage: The Perils of Translation in Early Modern Economy," *Age of Revolutions* (October 9, 2023), and in French Louisiana specifically, Vernon Palmer, “The Origins and Authors of the Code Noir,” *Louisiana Law Review* vol. 56, no. 2 (Winter 1996): 363-407."
+For more on this system, see Gregory Smaldone, "Don't Call it a Mortgage: The Perils of Translation in Early Modern Economy," *Age of Revolutions* (October 9, 2023), and in French Louisiana specifically, Vernon Palmer, “The Origins and Authors of the Code Noir,” *Louisiana Law Review* vol. 56, no. 2 (Winter 1996): 363-407."  
+  
+[^ii]: The legal code in Spanish America, especially with regard to property, was governed or derivative of medieval and Roman laws. Because legally all land belonged to the Crown (*realengo*), ordinances pertaining to property concentrated on how land concessions should be handled by governing bodies. The *Ordenamiento de Alcalá de Henares* was a series of such laws that could be called upon to govern land transactions in Spanish America in absence of local ordinances.  

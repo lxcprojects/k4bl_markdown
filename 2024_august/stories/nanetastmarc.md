@@ -16,8 +16,8 @@ Naneta uses Juan Pedro’s hurricane-induced injury as grounds for legal action 
   
 ### FURTHER RESOURCES  
   
-!battleofnola.jpg[Historicmap of the Prevot property in the Vieux Carré]()  
-**Fig. 1.** This map from the Battle of New Orleans shows the property of Salomon (Santiago) Prevot (Prevost), enslaver of Juan Pedro *alias* Bonhomme. Though Naneta was a resident of the Attakapas District, Prevot owned properties in the Vieux Carré (on the 500 block of Decatur, later owned by the Baron Pontalba) and plantations (indigo and dairy) in the present-day areas of Holy Cross and Chalmette. In the Lower 9, his neighbors included none other than Roberto Montreuil, enslaver of Roseta and her son Domingo *alias* Lubin, as well as the infamous Macarty family, amongst others. Source: Arsene Lacarierre Latour, *Map Shewing [sic] The Landing of the British Army its several Encampments and Fortifications on the Mississippi* (Philadelphia, 1815).
+!battleofnola.jpg[Historic map of the Prevot property in the Vieux Carré]()  
+**Fig. 1.** This map from the Battle of New Orleans shows the property of Salomon (Santiago) Prevot (Prevost), enslaver of Juan Pedro *alias* Bonhomme. Though Naneta was a resident of the Attakapas District, Prevot owned properties in the Vieux Carré (on the 500 block of Decatur, later owned by the Baron Pontalba) and plantations (indigo and dairy) in the present-day areas of Holy Cross and Chalmette. In the Lower 9, his neighbors included none other than Roberto Montreuil, enslaver of Roseta and her son Domingo *alias* Lubin, as well as the infamous Macarty family, amongst others. **Source**: Arsene Lacarierre Latour, *Map Shewing [sic] The Landing of the British Army its several Encampments and Fortifications on the Mississippi* (Philadelphia, 1815).
 
 !prevotvieuxcarre.jpg[Screenshot of the Vieux Carré Digital Survey listing records of the Prevot family's property on Decatur St.]()  
 **Fig. 2.** Records of the Prevot family's Decatur St. property as recorded by the Collins C. Diboll Vieux Carré Digital Survey.
